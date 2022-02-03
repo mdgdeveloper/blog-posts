@@ -42,5 +42,12 @@ De esta forma se produce la pardoja de que, a pesar de preocuparnos por disponer
 
 En mi caso he necesitado mucho tiempo, y todavía sigo en el proceso, de desaprender esa idea distorsionada que he tenido siempre acerca de lo que verdaderamente significa aprovechar el tiempo.
 
-Son muchos años los que me ha costado entender que disfrutar de tu tiempo se reduce, sencilla y llanamente, a hacer aquello que te apetece.
+Son muchos años los que me ha costado entender que disfrutar de tu tiempo se reduce, sencilla y llanamente, a hacer aquello que te apetece, sin preocuparte por nada más. 
+
+## La ausencia de preocupación. 
+Ahí radica la clave que hace que el tiempo libre tenga su correspondiente valor asociado: entenderlo como una forma de desligarte de una realidad apresurada y medida en función de tus obligaciones. 
+
+Basta solo eso, arrancar de raíz esa sociedad entre acción y retorno, entre comportamiento y resultado. No todo lo que hacemos tiene que tener un fin, tiene que tener un objetivo, tiene que devolvernos algo. Hay muchas, muchísimas cosas en la vida cuyo beneficio, cuyo provecho, cuyo valor intrínseco se circunscribe al placer de poder realizarlas. 
+
+La próxima vez que te tires en el sofá a cambiar de canales sin rumbo fijo, prueba a sentir que disfrutas de la sencillez de no estar haciendo nada. 
 
