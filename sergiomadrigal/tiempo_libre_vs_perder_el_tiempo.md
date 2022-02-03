@@ -34,15 +34,20 @@ Una buena rentabilidad también debería entenderse como el equilibrio entre una
 
 ## Es difícil disfrutar del tiempo si sientes que lo estás perdiendo. 
 
-Y, sin embargo, ese aprendizaje temprano del provecho como lucro económico, hace que muchos sintamos que perdemos el tiempo si no hacemos algo de nuestra lista de tareas pendientes. 
+Y, sin embargo, ese aprendizaje temprano del provecho como lucro económico hace que muchos sintamos que perdemos el tiempo si no hacemos algo de nuestra lista de tareas pendientes. 
+
+Hemos estigmatizado aburrirnos por considerarlo lo opuesto a sacar beneficio del tiempo, cerrándonos la puerta a una mayor capacidad de reflexión y de creatividad.
 
 El tiempo libre es entendido, así, como un depósito finito de oportunidades para alcanzar tu sueño. No hacer nada, o hacer algo que no tenga ligado directamente un lucro o un beneficio, que te acerque más a ese falso éxito, es abrir el grifo del despósito y verlo vaciarse. 
 
-De esta forma se produce la pardoja de que, a pesar de preocuparnos por disponer de tiempo libre, no sabemeos disfrutar de él cuando lo tenemos. O incluso lo reconvertimos en tiempo de trabajo, para aliviar el sentimiento de pérdida. 
+De esta forma se produce la pardoja de que, a pesar de preocuparnos por disponer de tiempo libre, no sabemeos disfrutar de él cuando lo tenemos. O incluso lo reconvertimos en tiempo de trabajo, para aliviar el sentimiento de pérdida. Nos aterra perder el tiempo. Nos asquea aburrirnos. 
+
+Por eso todos esos gurús, todas esas metodologías mágicas, insisten en que llenes tu tiempo libre, que lo bloquees de posibles distracciones, que lo midas hasta el segundo para no dejar escapar ni un mínimo de esa productividad ficticia. 
 
 En mi caso he necesitado mucho tiempo, y todavía sigo en el proceso, de desaprender esa idea distorsionada que he tenido siempre acerca de lo que verdaderamente significa aprovechar el tiempo.
 
 Son muchos años los que me ha costado entender que disfrutar de tu tiempo se reduce, sencilla y llanamente, a hacer aquello que te apetece, sin preocuparte por nada más. 
+
 
 ## La ausencia de preocupación. 
 Ahí radica la clave que hace que el tiempo libre tenga su correspondiente valor asociado: entenderlo como una forma de desligarte de una realidad apresurada y medida en función de tus obligaciones. 
