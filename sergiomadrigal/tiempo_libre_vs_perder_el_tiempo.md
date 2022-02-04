@@ -5,7 +5,7 @@ Nos encontramos ante un momento de nuestra historia en el que el tiempo, o más 
 
 Son cientos los profesionales, y no tan profesionales, que dedican sus esfuerzos a explicarnos cómo gestionar mejor nuestro tiempo.
 
-Son miles las teorías, los métodos, las apps, que han venido a revolucionar nuestra forma de manejarlo, que nos van a permitir cumplir la lista de objetivos interminable que nos han dicho que debemos cumplir. 
+Son miles las teorías, los métodos, las apps, que han venido a revolucionar nuestra forma de manejarlo, que nos aseguran cumplir la lista de objetivos interminable que nos han dicho que debemos cumplir. 
 
 Todo este enorme circo se basa en una necesidad construida con el tiempo y al abrigo de intereses ajenos. 
 
@@ -33,7 +33,6 @@ Pero un beneficio, una ganancia, también puede ser disfrutar de un rato tirado 
 Una buena rentabilidad también debería entenderse como el equilibrio entre una larga jornada laboral y un buen rato de desconexión, de no hacer absolutamente nada. 
 
 ## Es difícil disfrutar del tiempo si sientes que lo estás perdiendo. 
-
 Y, sin embargo, ese aprendizaje temprano del provecho como lucro económico hace que muchos sintamos que perdemos el tiempo si no hacemos algo de nuestra lista de tareas pendientes. 
 
 Hemos estigmatizado aburrirnos por considerarlo lo opuesto a sacar beneficio del tiempo, cerrándonos la puerta a una mayor capacidad de reflexión y de creatividad.
@@ -44,10 +43,9 @@ De esta forma se produce la pardoja de que, a pesar de preocuparnos por disponer
 
 Por eso todos esos gurús, todas esas metodologías mágicas, insisten en que llenes tu tiempo libre, que lo bloquees de posibles distracciones, que lo midas hasta el segundo para no dejar escapar ni un mínimo de esa productividad ficticia. 
 
-En mi caso he necesitado mucho tiempo, y todavía sigo en el proceso, de desaprender esa idea distorsionada que he tenido siempre acerca de lo que verdaderamente significa aprovechar el tiempo.
+En mi caso todavía sigo en el proceso de desaprender esa idea distorsionada que he tenido siempre acerca de lo que verdaderamente significa aprovechar el tiempo.
 
 Son muchos años los que me ha costado entender que disfrutar de tu tiempo se reduce, sencilla y llanamente, a hacer aquello que te apetece, sin preocuparte por nada más. 
-
 
 ## La ausencia de preocupación. 
 Ahí radica la clave que hace que el tiempo libre tenga su correspondiente valor asociado: entenderlo como una forma de desligarte de una realidad apresurada y medida en función de tus obligaciones. 
@@ -55,4 +53,3 @@ Ahí radica la clave que hace que el tiempo libre tenga su correspondiente valor
 Basta solo eso, arrancar de raíz esa sociedad entre acción y retorno, entre comportamiento y resultado. No todo lo que hacemos tiene que tener un fin, tiene que tener un objetivo, tiene que devolvernos algo. Hay muchas, muchísimas cosas en la vida cuyo beneficio, cuyo provecho, cuyo valor intrínseco se circunscribe al placer de poder realizarlas. 
 
 La próxima vez que te tires en el sofá a cambiar de canales sin rumbo fijo, prueba a sentir que disfrutas de la sencillez de no estar haciendo nada. 
-
